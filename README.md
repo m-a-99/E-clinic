@@ -54,6 +54,12 @@ his medical history, if any.
 
 ![image](https://user-images.githubusercontent.com/112770883/202873924-1b87541e-3e62-4d64-bf89-00ef2f92cf74.png)
 
+## real time chat 
+![image](https://user-images.githubusercontent.com/112770883/202874074-7ba770b5-9565-4a43-9b83-551b2738dd00.png)
+
+## video conferance 
+
+![image](https://user-images.githubusercontent.com/112770883/202874092-c71c102a-d05e-4279-bc9a-785d8b9d55db.png)
 
 ## Admin 
 
