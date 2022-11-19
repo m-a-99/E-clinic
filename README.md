@@ -36,7 +36,31 @@ his medical history, if any.
 
 ![image](https://user-images.githubusercontent.com/112770883/202873717-021a952b-3eb6-4405-bf26-8d4112a5a42a.png)
 
-
 ![image](https://user-images.githubusercontent.com/112770883/202873711-7930abe7-5215-4fd7-be0a-47440aada615.png)
 
 ![image](https://user-images.githubusercontent.com/112770883/202873713-f685767a-7317-458e-a702-8215e2f73221.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873890-fad678ad-5738-4561-89e4-f2bdb6be329d.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873909-51c10b2d-33ef-47b5-978d-8811f481d315.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873912-6c287b32-3430-4fde-bbd1-b42bf362e523.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873915-8e76596e-968a-4d57-a753-f75cd8687b26.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873919-16998055-8809-421d-b652-1d5c62192cb5.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873921-280e908f-5958-44b2-b080-593e0e389fa2.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873924-1b87541e-3e62-4d64-bf89-00ef2f92cf74.png)
+
+
+## Admin 
+
+![image](https://user-images.githubusercontent.com/112770883/202873929-8b74043a-687c-483a-8e62-414988c044e1.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873931-c098075e-a7f4-4ccb-bc5e-1992f1eba441.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873936-a5f0c707-f35c-465e-96a4-dcbb56a92aa3.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873940-31aed57e-17c1-4abd-a610-0b469d0b3838.png)
