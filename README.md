@@ -19,8 +19,11 @@ identification documents required.
 2- Patient account: Any person can create a patient account
 with his personal information and some information about
 his medical history, if any.
+
+![image](https://user-images.githubusercontent.com/112770883/202873648-eb302f8a-d445-4578-8bff-721649119d06.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873662-f44bfa1d-4eb2-4897-b21a-d864b465ef23.png)
+
 ![image](https://user-images.githubusercontent.com/112770883/202873598-18754436-d50d-4895-829f-616682e0a231.png)
+
 ![image](https://user-images.githubusercontent.com/112770883/202873614-d48fa2bc-c8a1-4f68-a5a5-93a6667e4ca6.png)
-![image](https://user-images.githubusercontent.com/112770883/202873618-51295dd9-c33e-416b-b691-feb41ff5a3f6.png)
-![image](https://user-images.githubusercontent.com/112770883/202873623-8ba880b6-490c-46b8-834a-f7089de1d7f0.png)
-![image](https://user-images.githubusercontent.com/112770883/202873627-efc6d0ff-aab1-441c-b628-7a6d2aa95cc1.png)
