@@ -27,3 +27,16 @@ his medical history, if any.
 ![image](https://user-images.githubusercontent.com/112770883/202873598-18754436-d50d-4895-829f-616682e0a231.png)
 
 ![image](https://user-images.githubusercontent.com/112770883/202873614-d48fa2bc-c8a1-4f68-a5a5-93a6667e4ca6.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873705-359af153-b67e-41ea-98c5-daa821ec0627.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873706-a9baea46-277e-4fb8-bc3f-9480ff548fef.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873707-7c48f228-5a77-4b0b-9c2c-1fe5931a5f4c.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873717-021a952b-3eb6-4405-bf26-8d4112a5a42a.png)
+
+
+![image](https://user-images.githubusercontent.com/112770883/202873711-7930abe7-5215-4fd7-be0a-47440aada615.png)
+
+![image](https://user-images.githubusercontent.com/112770883/202873713-f685767a-7317-458e-a702-8215e2f73221.png)
